@@ -1,0 +1,2 @@
+# ucenje
+za vezbu
